@@ -1,4 +1,4 @@
-#  
+#  driving empire Script professional is the best driving empire Script, featuring unlimited stamina and auto-sell. Safe and powerful for all your needs.
 
 
 
